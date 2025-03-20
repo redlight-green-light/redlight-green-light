@@ -2,6 +2,8 @@
 
 Introduction
 In recent years, the online gaming landscape has seen a surge of interest in simple yet engaging games that not only entertain but also evoke nostalgia. One such game is "[Red Light Green Light](https://redlight-greenlight.io/)," which has gained notoriety not just as a childhood playground game but also as a digital phenomenon. In this article, we will explore the origins, objectives, gameplay mechanics, rules, and the various adaptations of this classic game in the online sphere.
+![Untitled design (2)](https://github.com/user-attachments/assets/1b73fc71-4844-418a-98a9-7559adc7a9e2)
+
 
 Origin of Red Light Green Light
 Red Light Green Light is a game with roots tracing back to traditional children's games played across various cultures. While the exact origin is hard to pinpoint, similar versions have been found in many countries. In the United States, it has been a staple of outdoor play since the 20th century, often played in schoolyards or during summer camp activities.
