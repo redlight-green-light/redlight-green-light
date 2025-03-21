@@ -61,3 +61,18 @@ Red Light Green Light is more than just a nostalgic childhood game; it represent
 
 Whether played in your backyard or as part of an online experience, Red Light Green Light encourages physical activity, strategic thinking, and social interaction—all essential components of why we play games. 
 So gather your friends, and **_let the games begin!_**
+---
+[Play now!](https://redlight-greenlight.io/)
+
+[YouTube](https://www.youtube.com/@red-light-greenlight/)
+
+[Facebook](https://www.facebook.com/redlightgreenlight.io/)
+
+[Instagram](https://www.instagram.com/red.light_greenlight/)
+
+[Tiktok](https://www.tiktok.com/@red_light.green_light/)
+
+[Pinterest](https://www.pinterest.com/red_light_green_light/)
+
+
+
