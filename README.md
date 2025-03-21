@@ -1,4 +1,5 @@
 **Red Light Green Light: The Online Game That Captivated the World**
+---
 
 Introduction
 In recent years, the online gaming landscape has seen a surge of interest in simple yet engaging games that not only entertain but also evoke nostalgia. One such game is "[Red Light Green Light](https://redlight-greenlight.io/)," which has gained notoriety not just as a childhood playground game but also as a digital phenomenon. In this article, we will explore the origins, objectives, gameplay mechanics, rules, and the various adaptations of this classic game in the online sphere.
@@ -61,7 +62,9 @@ Red Light Green Light is more than just a nostalgic childhood game; it represent
 
 Whether played in your backyard or as part of an online experience, Red Light Green Light encourages physical activity, strategic thinking, and social interaction—all essential components of why we play games. 
 So gather your friends, and **_let the games begin!_**
+
 ---
+
 [Play now!](https://redlight-greenlight.io/)
 
 [YouTube](https://www.youtube.com/@red-light-greenlight/)
